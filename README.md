@@ -1,0 +1,1 @@
+# Fujiayumu.github.io
